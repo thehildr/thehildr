@@ -3,12 +3,6 @@ I'm Hilda.
 
 
 
-
-![tumblr_558dc6ac8f31409ecd11037ff0601324_0769319b_500](https://github.com/user-attachments/assets/5e137ea2-fbc6-47a7-8c60-ebaf9111f1eb)
-
-
-
-
 ## My Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/thehildr) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/hildakarimpour) 
 
